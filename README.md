@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TimeSo28
-- 👀 I’m interested in (I don't knew at now) I only lern today
+- 👀 I’m interested in (I don't knew at now) I only learn!
 - 🌱 I’m currently learning Html and Css
 - 📫 How to reach me WorkEmail -- Sobranint@gmail.com
 
